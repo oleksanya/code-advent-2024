@@ -5,45 +5,32 @@ how()?}% #who()\']#!/usr/bin/perlmul(875,840);]:::mul(127,915)>^>select(736,608)
 ;\'?,&@@mul(687,295)mul(992,56)from()@$:when();mul(839{*;~mul(577,183)@-where()}why()~@^from()mul(226,901)how() >%when()?[~mul(281,291)#&>#$how()}mul(500,749)&>^-;why()@!@]do()/@?*,</mul(637,962)why())#@]mul(150,192)%(+mulselect()( /mul(455,843)@({-;how()>]~)mul(530,987)who()why()why()@>mul(282,486)*,-from(),>\'what()mul(147,97)- /select()<$do()mul(339,632)<+mul(476,603)#$!mul(249,732)![]mul(552,713)}%^:[~who(294,666)!mul(335,971)>#mul(190(how();who():)mul(364,772)[~,when()*mul(350,52;who(640,301)from()-$,%:};mul(407,507))&#why()/{&[mul(668,42),~mul(849,891)what()*-:/who()$mul(335,214)?:why(); ,%mul;}mul(561,325){mul/+?when()<mul(732,879)#+where(){mul(372,617)what()#/mul(307<who()<]where()when()$mul(302,561)where()-mul(165,848):\';why()why(){&mul(800,615)how()where()$from()!mul(617,736)select()-~-<!why()$where();mul(505,440)<!;%mul(36,639)!)what() [[}<,mul(100,765)when()(mul(418,224)select();do()-/*!^mul(480,518)>select()#do()!{!)/!mul(398,351)\'$]how()%?:)from(716,264)}mul(976,539)when()}/mul(800,619)who())[?mul#+who()}mul(527,856)mul(479,693)[<mul(728,432)*mul(713,727)# }(  where()mul(80,482)what()%,~)-\'+/\'mul(765,963)[mul&-how()mul(887,370)-{/$\'-\'where()who()what(295,542)mul(107,111)mulwhere()!where() how()/$mul(461,345)!from()mul(707,778);>what()#}{where()where()mul(310,5)$]>mul(687,149))!how(),why()how(941,130)where()when()what()mul(187,693)(mul(24,418){\':}mul(304,601)when()mul(66,524)how()\']select()from()>what()mul(217,884)~~<where() ^[mul(304,545)/why(){)[-,what()mul(782,464)why()*when(),}}mul(767,112)*mul(620,773)mul(89,154);]how()<::when()where() mul(430,945)*))mul(143,829)from(192,329)#!{who()($-mul(825,949)do()<%where()![mul(467,327)[&mul(727,778)!*(?@~mul(12,864)from()(; what()where()do()mul(975,968)how()mul(572,737):why()[when()mul(6,295)what()(where()$why()){mul(899,746)-where()mul(28,836)!what()!*,mul(362,377)who(),mul(449,514):?/@%{mul(593,723)^who()(!;[;mul<who()}what()$?from() %:]mul(409,707)<why()why()-;mul(847,518)][select(733,913)@-@why()who()when()mul(159,434)~^^#mul(973,188)-( [,#(%why();mul(970,535)~-,;{mul(776,519)select()\'(how()+(mul(341,437)+ >-when())?@/mul(62,572)))when(482,658){select(561,928)when()!({mul(388,507)from()/+mul(64,284)who()why(899,74)when()why()mul(734,117)<-+}#:what()mul(567:where()select()mul(694,323)/[select()mul(772,515)[/\'>why()when()/(*@mul(663,798)$when()select()$%#<,select()mul(810,58):~,(+select()[from()~\'mul(838,509)mul(227,633)] mul(300,309)]>,!}\'mul(369,74)$~({ ~\'}{]don\'t()~)&<[>who()>mul(76,891)!]~ }:)${/mul(226,65)~/&<)^mul(981,600)[who(271,199)~-$&;[where(691,309)mul(69,207)*>select()*(+mul(935,119)<> ?;->mul(116,703)\'where()-;;from()mul(324,982from()what()@<^mul(144,872)@+mul(569,48)mul(475,850)*how()\'~^-mul(486,714)~![why()why()}<<mul(436,514)mul(574,28)when()\'!how()@\'what()select()mul(181,123))>/select()how()mul(789,342)?select()]!why()#mul(485,483)\'%why();?%who()mul(921,916)do()\'*]where()how(977,165)@mul(441,964)*-who()]&mul(395,170)> }mul(583,793)<*-how(){{mul(794,26)<how()&mul(670,885)/? -~<+]mul(32,656)(why()/>%~/;mul(297,812)mul(264,703)[select(253,420)select()mul(665)*when()*/>when()from()/where()!mul(264,312)where(756,949),+{}from()+;mul(454,375),do(){mul(72,780)(who() mul(4,67)\
 <mul(299,165) -mul(606,634)&select() /@who()<when()^mul(773,105)when(140,544)mul(565,610)>/why()[*>when())from()mul(163,222)who();select()@?select()mul(631,370)where()^%mul(48,604)%where()select()]%:!{mul(492,16):?select(566,72)\'@+when()})mul(277,631)when()when()+%#mul(356,136)mul^who() from()!from()~[don\'t()?:#!mul(536,636){how()why(167,58){from()$;&mul(170,241)-~$mulwho(),mul(295,979)^when()$}mul(872,817)\'^+ %%%@%;mul(796,401){@$from():%(@who()where()do()how();,>where()*how()mul(562,34)mul(851,857)([how()mul(870)do()^#]what()mul(855,774)>from()mul(19,63)<mul(20,808)what()when()}mul(9,565)\')#where(){;/mul(485,358){?~#),{when()mul(760,344)where()~#what()from()}}{*\'mul(76,561) }why();;what()select()where()#?mul(202,590)#{do();mul(537,456)#^\'mul(231,127)when()(%],(}[-^mul(928!how()<when()+(mul(278,743)where()$mul(138#{{mul(612,612){select()@what(186,303),mul(577,261)/{*why()mul(739,172)$@-*;~mul(217,239)(-~;%who()why(681,472)where()who()mul(2%mul(30,720)\'what()(~~mul(414,37)/when()%*}}%why()^mul(293,928)%,$#when()/^\'don\'t()&from()mul(662,652why()when()mul(134,920)what()*?!;!how()@from()do()*!~~mul(472,62)])mul:*?@<$when()mul(403,2)mul(682,860):,when(198,260)?:[}[,&mul(940,144<+]*#:mul(274,552)*select()#}<mul(721,529),:who()mul(938,454)[where()mul(816,770)$#^*what()select()\'~{select()mul(201,567where(223,485)^]from(721,470)why()>)from()/\'#mul(502,592)$(mul(330,265)-*\'why()/<@mul(919,336)\'when()when()(~ mul(222,37)mul}*?mul(716,440);how(254,405)#mul(938,798)]why()+mul(370,761);+select())mul(308,872):!who()%mul(376,736)when()[don\'t()$;#~,how():select()~what()mul(793,522)){?who()/mul(812,372)<;@mul(627,289)[!don\'t()^+)how()$from()##mul(500,501)#{why(120,25)mul(571,651):&{?mul(792,25))@$(@>don\'t()who()?^\')\' from()[mul(323,38)when()where()*/who()%mul(623,356)?mul(629,625))}+how()mul(950,826)(+,#mul(947,453)why();\'how()&]from()mul(510,94)-?[from(){mul(34,148){when()mul(661,839)do()/}who()mul(597,740)^;mul(6,887)~#how(287,928) $>?}:don\'t()/-%(,;/))mul(910,743)!:%,%}/mul(626,661)((&([mul(320,446){what()\'~<-@mul(573,309)^:?why(352,585)how(328,377)(@mul(996,815),~don\'t()mul(558,873), what()?>]^$mul(647,533);$@]!when();;when()mul(508,819)&select()( select()mul(823,518)/<when():when()~why(744,571){mul(405,772):;where();(mul(132,162)] !how(74,640):select()/mul(721,482)$why(),*{mul(925,155)*!!<-!}don\'t(){)+#^mul(990,837)?,mul(867,142)mul(764,232)mul(754,292)$#,select()>-how(),]mul(584,720)mul(127,993)\'\'why()\'/![where()mul(130,642)*what()<?where()mul(325,585)select()when()>when()mul(648,223)#}])don\'t() !when(647,635)+&$ mul(154,204)@~~?mul(90,691)when()]^&from()\'[mul(236,768)~where())^~->(&mul(378,233)<?mul(366,515)how()},don\'t()*what()what()~/select()mul(507,554)<+<mul(145,19)mul(444,536)%!%mul(861,889)#where()}-:{:^ mul(790,870)!from()why(343,804){*-how()from()mul(989,194)<!!when(586,215)where(238,474)}mul(430,90){+who(308,211),mul(365,640)mul(684,600)$^:}from()\'&mul(745,81)how()select()who(897,36)]$+?&^don\'t()what()who(){from()}(\'$mul(782,153)mul(270,449)#*mul(371,710)]&what()*!{?mul(487,920)(mul(474,993)@%mul(70,96)what()?<@~*mul(639,92)<?%-(mul(154,267));mul(588,135)*$*: [where()mul(2,108)who()/~(why()~/,^mul(364,558)who()#\'do()[select()(: when()mul(324,801)where())\'#,mul(696,843)*,[mul(946,677)}[how(532,32)[when()\'-where(){mul(254,222){select()";
 
+  const regexMain = /(do\(\)|don't\(\)|mul\(\d+,\d+\))/g;
 
-const regexMain = /(do\(\)|don't\(\)|mul\(\d+,\d+\))/g;
+  let matches = [...str.matchAll(regexMain)];
+  let arrMatches = matches.map(match => match[0]);
 
-let matches = [...str.matchAll(regexMain)];
+  let insideBrackets;
+  let sum = 0;
+  let lastWasDont = false;
 
-let arrMatches = matches.map(match => match[0]);
+  for (let match of matches) {
+    const currentMul = match[0];
 
-let insideBrackets;
-console.log(arrMatches)
-let sum = 0;
-let lastWasDont = false;
-
-for(let i = 0; i < arrMatches.length; i++) {
-
-  for(let j = 0; j < arrMatches[i].length; j++) {
-    let from; 
-    let to;
-    let currentMul = arrMatches[i];
-
-    if(currentMul[j] == '(' && !lastWasDont) {
-      from = j;
-    }
-
-    if(currentMul === `don't()`) {
+    if (currentMul === "don't()") {
       lastWasDont = true;
-    } 
-
-    if(currentMul === `do()`) {
-      lastWasDont = false;
+      continue;
     }
-
-    if(from && !lastWasDont && currentMul !== `do()`) {
-      console.log(currentMul);
-      insideBrackets = currentMul.slice(from + 1, -1).split(',').map(Number);
-
-      sum = sum + (insideBrackets[0]* insideBrackets[1]);
-      break;
+    
+    if (currentMul === "do()") {
+      lastWasDont = false;
+      continue; 
+    }
+  
+    if (!lastWasDont && currentMul.startsWith("mul(")) {
+      const insideBrackets = currentMul.slice(4, -1).split(',').map(Number);
+      sum += insideBrackets[0] * insideBrackets[1];
     }
   }
-}
 
-console.log(sum); // Extract matched substring
+console.log(sum);
